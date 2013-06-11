@@ -1,1 +1,1 @@
-Etouch Mobile first site
+Visit us @ [eTouchMenu](http://etouchmenu.com/) :)
